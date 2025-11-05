@@ -1,4 +1,4 @@
-# Hi there, I'm [KD-3030]! 👋
+# Hi there, I'm KD-3030! 👋
 
 
 
